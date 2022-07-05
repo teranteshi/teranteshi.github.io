@@ -9,4 +9,4 @@ Blogging to keep intact the memories of my daughter and me.
 
 ### Contact me
 
-[teranteshi@gmai.com](mailto:teranteshi@gmail.com)
+[teranteshi@gmail.com](mailto:teranteshi@gmail.com)
